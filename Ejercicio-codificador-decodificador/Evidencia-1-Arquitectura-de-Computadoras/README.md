@@ -1,1 +1,0 @@
-# Evidencia-1-Arquitectura-de-Computadoras
